@@ -1,4 +1,4 @@
-# [Név]
+# [Peterman Mark]
 
 
 ## Hogyan kezdj neki?
